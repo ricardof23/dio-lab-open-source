@@ -6,7 +6,7 @@ Meu nome é Francis Ricardo, tenho 34 anos, sou pernambucano, casado e apaixonad
 
 Sou formado em Análise e Desenvolvimento de Sistemas.
 
-Trabalho há 15 anos com informática, eletrônica e telecomunicações.
+Trabalho há 13 anos com informática, eletrônica e telecomunicações.
 
 
   
